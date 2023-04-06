@@ -1,1 +1,1 @@
-My first readme
+The Lord gives favour
